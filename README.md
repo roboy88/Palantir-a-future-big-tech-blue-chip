@@ -1,0 +1,1 @@
+# Palantir-a-future-big-tech-blue-chip
